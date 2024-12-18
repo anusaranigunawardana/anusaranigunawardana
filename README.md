@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://dribbble.com/Anusarani_gunawardana](https://dribbble.com/Anusarani_gunawardana)
 
-- 💬 Ask me about **UI/UX Design**
+- 💬 Ask me about **UI/UX Designing**
 
 - 📫 How to reach me **anugunawardana4000@gmail.com**
 
